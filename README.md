@@ -1,0 +1,1 @@
+# GamzeNurDemir-Hafta1
